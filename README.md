@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @minju49
+- 👀 I’m interested in ... animation
+- 🌱 I’m currently learning ...C++ and Python
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ... I don't know
+- ⚡ Fun fact: ...I like animation ! ! :)
