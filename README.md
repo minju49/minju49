@@ -4,3 +4,4 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... I don't know
 - ⚡ Fun fact: ...I like animation ! ! :)
+- motto "I am better than yesterday. I reflect on yesterday's self, make better decisions today, and trust in my growth as I improve little by little every day."
